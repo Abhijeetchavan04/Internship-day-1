@@ -1,1 +1,1 @@
-# Internship-day-1
+# Internship
